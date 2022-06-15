@@ -1,0 +1,2 @@
+- 👋 My name is Manisha Gupta, I did my graduation in Bechelor of Science in Information Technology from mumbai university. 
+- I am currently focused on analytics as my specialty, where i provide important insight to brands using customer data so that they can make informed decision.
